@@ -1,0 +1,101 @@
+# Tommy february6 – ANGEL FADE
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:00.95] I wander through this dream
+[00:03.89] Awake Alive
+[00:05.32] But something is wrong
+[00:08.26] These pastel skies, this soda steam
+[00:25.76] 
+[00:12.17] This pancake earth is gone
+[00:15.15] Just tell me
+[00:16.76] You feel
+[00:17.50] Exactly the same
+[00:18.77] Just tell me
+[00:19.93] You feel
+[00:21.00] No warmth in the flame
+[00:22.97] So tell me
+[00:24.05] That we
+[00:24.92] Have things we can mend
+[00:26.20] Just tell me
+[00:27.85] That we
+[00:28.71] Are not at the end
+[00:30.37] So tell me
+[00:35.37] 
+[00:31.41] Just tell me
+[00:35.76] Tell me
+[00:36.38] Tell me...
+[00:41.38] 
+[00:46.09] So tell me
+[00:51.09] 
+[00:52.17] As everything I know is changing
+[00:55.80] Try to find a way to stand my ground
+[00:59.53] Everything I know is rearranging
+[01:02.61] As I turn to look around
+[01:06.41] I am torn
+[01:08.78] This is me
+[01:10.50] But I see
+[01:12.45] I am free now
+[01:14.85] I am born
+[01:16.25] Once again
+[01:18.05] Cut the chain
+[01:20.18] Start a new reign
+[01:22.32] All that glitters cannot stay gold
+[01:25.82] Even raging fires will grow cold
+[01:29.23] Ill be strong
+[01:32.78] Unafraid
+[01:35.03] Be re-made
+[01:36.10] This is my ANGEL FADE
+[01:40.42] My wings are frail, they lose
+[01:41.63] Their powers
+[01:42.88] No way
+[01:43.77] For me to fly now
+[01:45.05] These cotton clouds,
+[01:47.79] These candy flowers
+[01:49.73] I know
+[01:51.07] Theyre all a lie
+[01:52.76] Just look at the skies
+[01:54.25] Theyre tearing apart
+[01:55.73] Do you realize
+[01:57.35] Youre breaking my heart
+[01:59.34] So tell me
+[02:01.10] That we
+[02:01.96] Have things we can mend
+[02:03.67] Just tell me
+[02:04.71] That we
+[02:05.58] Are not at the end
+[02:07.25] So tell me
+[02:12.25] 
+[02:11.51] Just tell me
+[02:12.73] Tell me
+[02:13.61] Tell me...
+[02:18.61] 
+[02:29.67] As everything I know is changing
+[02:32.89] Try to find a way to stand my ground
+[02:50.89] 
+[02:36.19] Everything I know is rearranging
+[02:39.79] As I turn to look around
+[02:44.12] I am torn
+[02:46.03] This is me
+[02:47.88] But I see
+[02:49.65] I am free now
+[02:51.84] I am born
+[02:53.60] Once again
+[02:55.29] Cut the chain
+[02:56.82] Start a new reign
+[02:59.58] All that glitters cannot stay gold
+[03:03.65] Even raging fires will grow cold
+[03:06.62] Ill be strong
+[03:09.11] Unafraid
+[03:11.92] Be re-made
+[03:13.19] This is my ANGEL FADE
+[03:15.27] There was a time my dream
+[03:18.65] Came true
+[03:19.84] My heart
+[03:20.81] Was young and care-free
+[03:22.15] I know that I was here
+[03:24.80] With you
+[03:25.98] For that
+[03:27.06] I feel so happy...
+```
